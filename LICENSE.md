@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with MEV-optimized meme coin sniper bot | degen-coin-scanning + multi-chain-support, the #1 meme coin sniper bot. Includes degen-coin-scanning and
 
 
 
